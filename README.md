@@ -9,3 +9,11 @@ Abraham96livejr/Abraham96livejr is a ✨ special ✨ repository because its `REA
 You can click the Preview link to take a look at your changes.
 --->
 
+Mis Paginas Webs:
+https://micvabrahamjr.wordpress.com/
+https://tecnoservicio962193915.wordpress.com/
+https://micvjr1996abraham.carrd.co/
+
+
+Social: https://www.linkedin.com/in/abraham-cabello-8074521a9/
+
